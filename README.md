@@ -1,0 +1,1 @@
+![Cute puppy](https://placedog.net/300/200)
